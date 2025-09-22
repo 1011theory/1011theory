@@ -1,6 +1,6 @@
 ## 1011
 
-Hi, I am an Unreal Engine Technical Artist and Programmer.
+Hi, I am an Unreal Engine Technical Artist.
 
 🎨[ArtStation](https://www.artstation.com/user-875393)
 
